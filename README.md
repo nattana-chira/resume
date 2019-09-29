@@ -1,1 +1,1 @@
-# resume of Nattana chirachaithumrongsak
+# resume of Nattana Chirachaithumrongsak
